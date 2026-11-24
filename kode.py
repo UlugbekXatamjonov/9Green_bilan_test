@@ -11,3 +11,21 @@ xcv
 xcxc
 
 """
+
+
+"""df
+gf
+DeprecationWarningdfgdf
+global
+
+
+
+
+varsvx
+cvcx
+v
+
+
+
+xvc
+"""
